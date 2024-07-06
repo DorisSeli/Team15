@@ -5,6 +5,8 @@ Anna Timofeeva
 Doris
 Kaisa
 KarinV
+Doris, Kaisa and KarinV are from Estonia.
+Anna is originally from Latvia but resides in Bulgaria.
 
 Teamleader is Anna
 
