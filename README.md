@@ -6,5 +6,5 @@ Doris
 Kaisa
 KarinV
 
-Teamlead position still open!
+Teamleader is Anna
 
